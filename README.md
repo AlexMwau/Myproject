@@ -13,4 +13,6 @@ https://drive.google.com/file/d/1B7r8d24kn0bwmOBMZcc1Uda-DNoUP58p/view?usp=drive
 
 ## Connect With Me
 LinkedIn:https://www.linkedin.com/in/alex-kioko-70234925b
+email: alexkmwau@gmail.com 
+direct call: +254719185987
   
