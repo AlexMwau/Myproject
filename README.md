@@ -12,7 +12,7 @@ Statistical Analysis & Modeling: Price Elasticity of Demand, Predictive Churn Mo
 Spreadsheet Engineering: Advanced Excel, VBA Macros, Automated Reporting Workflows
 
 ## Projects
-https://drive.google.com/file/d/1PyHdSfL04bExhDeCh0ktLAHK46FgaBzW/view?usp=drive_link
+https://drive.google.com/file/d/1PyHdSfL07bExhDeCh0ktLAHK46FgaBzW/view?usp=drive_link
 
 ## Connect With Me
 LinkedIn:https://www.linkedin.com/in/alex-kioko-70234925b
